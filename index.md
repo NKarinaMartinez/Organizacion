@@ -1,4 +1,4 @@
-## Bienvenido pagina de comportamiento
+## Bienvenido a la pagina de Comportamiento Organizacional
 
 La comunicación interpersonal es el proceso de intercambio de mensajes entre personas cuyas vidas se influyen mutuamente de manera única en relación con las normas sociales y culturales. Esta definición, destaca el hecho de que la comunicación interpersonal involucra a dos o más personas que son interdependientes en algún grado y que crean un vínculo único basado en los contextos sociales y culturales. Por lo tanto, un breve intercambio con un empleado de una tienda de comestibles que no conoces no se consideraría comunicación interpersonal, porque tú y el empleado no se influencian entre sí de manera significativa.
 También podemos decir que la comunicación interpersonal es el proceso mediante el cual las personas intercambian información, sentimientos y significado a través de mensajes verbales y no verbales. Esta no se trata solo de lo que realmente se dice o el lenguaje utilizado, sino de cómo se dice y los mensajes no verbales enviados a través del tono de voz, expresiones faciales, gestos y lenguaje corporal.
